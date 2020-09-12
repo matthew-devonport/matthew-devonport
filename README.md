@@ -43,7 +43,7 @@ quality of standard.
 - [Instagram](http://instagram.com/matthew_devonport)
 - [Facebook](http://facebook.com/matthewdevonport)
 - [YouTube](http://youtube.com/roarpowernz)
-- [Twitter](http://twitter.com/matthew_devonport)
+- [Twitter](http://twitter.com/matt_devonport)
 
 
 
