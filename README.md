@@ -22,7 +22,7 @@ environments focused on delivering outcomes and results.
 opportunities in my work and personal life.
 
 :white_check_mark: **A Natural Problem Solver:** I have been acknowledged for the positive impact that I
-have on the teams and groups I am a part. I am a high energy person who helps
+have on the teams and groups I am a part of. I am a high energy person who helps
 keep others engaged and focused and I enjoy challenging myself to grow.
 
 :white_check_mark: **High Achiever:** Meeting timed based targets in work and personal projects to a high
