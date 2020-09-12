@@ -13,17 +13,17 @@ Early in 2019 I decided to pursue a career change into tech by studying at Dev A
 
 ## How I Work
 
-:white_check_mark: Driven and focused: I have developed my skills in team based and sales
+:white_check_mark: **Driven & Focused:** I have developed my skills in team based and sales
 environments focused on delivering outcomes and results.
 
-:white_check_mark: Passionate with a growth mindset: I look for challenges and development
+:white_check_mark: **Passionate With a Growth Mindset:** I look for challenges and development
 opportunities in my work and personal life.
 
-:white_check_mark: A natural problem solver: I have been acknowledged for the positive impact that I
+:white_check_mark: **A Natural Problem Solver:** I have been acknowledged for the positive impact that I
 have on the teams and groups I am a part. I am a high energy person who helps
 keep others engaged and focused and I enjoy challenging myself to grow.
 
-:white_check_mark: High achiever: Meeting timed based targets in work and personal projects to a high
+:white_check_mark: **High Achiever:** Meeting timed based targets in work and personal projects to a high
 quality of standard.
 
 ## Personal Hobbies & Interests
