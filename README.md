@@ -4,9 +4,9 @@ Hey! :wave: I'm Matt - currently a freelance website/software developer who has 
 
 Early in 2019 I decided to pursue a career change into tech by studying at Dev Academy in Wellington New Zealand where I developed a passion for software development. I come from a background where I have thoroughly enjoyed building relationships with people, solving problems and finding solutions. This in combination with now creating applications to help people solve problems and find solutions in the tech world makes me feel confident that I am on my dream career path.
 
-My key tech skills are based in: HTML/CSS and JavaScript (React and Node).
+My key tech skills are based in: HTML/CSS and JavaScript (React and Node). I am also exploring interests in C#, DevOps & AWS.
 
-## My Values & Attributes
+## Key Values & Attributes
 
 :key: Integrity
 :thought_balloon: Growth Mindset
