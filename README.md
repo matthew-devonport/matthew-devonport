@@ -30,7 +30,7 @@ quality of standard.
 
 ## Personal Hobbies & Interests
 
-:muscle: Health & Fitness - Both physical and mental.
+:muscle: Health & Fitness - Both physical and mental. I reguarly attend the gym and practice self love/care.
 
 :musical_score: Musician - I play and live stream drums. I also have played shows across New Zealand.
 
