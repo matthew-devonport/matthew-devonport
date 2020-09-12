@@ -32,7 +32,7 @@ quality of standard.
 
 :musical_score: Musician - I play and live stream drums. I also have played shows across New Zealand.
 
-:godmode: Gaming - This first sparked my interest in tech and previously competed at an international level in the RTS genre before being career focused.
+:godmode: Gaming - This first sparked my interest in tech and I previously competed at an international level in the RTS genre before being career focused.
 
 :sunny: Outdoors - I balance my tech life with my love of nature and getting vitamin D into the system.
 
