@@ -32,9 +32,7 @@ quality of standard.
 
 :muscle: Health & Fitness - Both physical and mental. I reguarly attend the gym, eat a balanced healthy diet and practice self love/care.
 
-:musical_score: Musician - I play and live stream drums. I also have played shows across New Zealand.
-
-:godmode: Gaming - This first sparked my interest in tech and I previously competed at an international level in the RTS genre before being career focused.
+:musical_score: Musician - I play and live stream drums. I also have played shows across New Zealand. Currently also learning piano and playing a bit of bass guitar.
 
 :sunny: Outdoors - I balance my tech life with my love of nature and getting vitamin D into the system.
 
